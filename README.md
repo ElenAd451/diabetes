@@ -1,1 +1,1 @@
-# diabetes
+I think there’s nothing worse than being in the unknown, not knowing what you’ll face next. That’s especially true when someone is diagnosed with a disease like type 1 diabetes. If you or someone close is [recently diagnosed with type 1 diabetes](https://www.breakthrought1d.org/newly-diagnosed/), I highly recommend first finding good specialists and extra resources for diabetics that help you basically rebuild your daily routine.
